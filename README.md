@@ -1,0 +1,1 @@
+# Diplom_GB_ProgressQuest_WORK_VERSION
